@@ -1,5 +1,4 @@
 # Homo Cohabitants
-==================
 
 ## Post-human evolution Sci-fi book.
 
