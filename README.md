@@ -1,6 +1,6 @@
-# Homo Cohabitants
+# Homo Nexilis
 
-## Post-human evolution Sci-fi book.
+## Post-human evolution vision.
 
 ### Chapters:
 1. Human evolution
